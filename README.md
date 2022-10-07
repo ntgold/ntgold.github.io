@@ -1,2 +1,2 @@
-# ntiense-doesnt-give-a-fuck
+#Life and light giver
 multidisciplinary artist, nft creator
